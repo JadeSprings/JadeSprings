@@ -1,4 +1,4 @@
-## Welcome to my profile!👀
+## 👀WELCOME TO MY PROFILE!
 
 <!---
 JadeSprings/JadeSprings is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
